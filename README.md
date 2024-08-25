@@ -1,1 +1,1 @@
-# Mridul-
+# Mridul-Tesla, Inc., American manufacturer of electric automobiles, solar panels, and batteries for cars and home power storage. It was founded in 2003 by American entrepreneurs Martin Eberhard and Marc Tarpenning and was named after Serbian American inventor Nikola Tesla.
